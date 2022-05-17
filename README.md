@@ -1,4 +1,5 @@
 Olá,Sou o Medeiros 🩸
-Tenho 15 anos
-Sou do signo de touro
-Torço para o SC INTERNACIONAL
+Tenho 15 anos ⌛
+Estou aprendendo programação 💻
+Estou cursando o 1 ano do Ensino Médio🎒
+Estudando de escola pública 🏫
